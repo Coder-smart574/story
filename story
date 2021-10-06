@@ -1,1 +1,2 @@
-Once upon a time in a forest there lived a monkey, who resided on a berry tree, which was on banks of river in same forest there lived Mr and Mrs Crocrodile
+Once upon a time in a forest there lived a monkey, who resided on a berry tree, which was on banks of river in same forest there lived Mr and Mrs Crocrodile.
+One Day Mr and Mrs Crocodile came to the river and rested under the tree, the kind hearted onkey offered him some fruits and the crocodile came the next day for more fruits as he loved them, as days passed by, they became good friends.
